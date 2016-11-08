@@ -1,3 +1,5 @@
 # classwork
 bla bla bla
-My favorite candy is jolly rancher. 
+
+
+This is the edits person 2 made
